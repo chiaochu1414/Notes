@@ -1,1 +1,5 @@
 # Notes
+I 
+LOVE
+U
+BY CHIAO
